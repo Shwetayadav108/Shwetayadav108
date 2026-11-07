@@ -53,7 +53,7 @@ K. K. Wagh Arts, Science & Commerce College | 2022 – 2025
 
 ## Connect
 
-[LinkedIn](www.linkedin.com/in/shweta-yadav-001a92368) · [Email](mailto:shwetadyadav108@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/shweta-yadav-001a92368) · [Email](mailto:shwetadyadav108@gmail.com)
 
 ---
 
